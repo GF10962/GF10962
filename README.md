@@ -9,4 +9,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Você pode entrar em contato comigo 📫
 
-alurastartestudante@email.com
+00001095235468sp@al.educacao.sp.gov.br
